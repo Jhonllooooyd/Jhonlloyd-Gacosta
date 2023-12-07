@@ -8,7 +8,7 @@ I am Jhonlloyd B. Gacosta, a passionate coder with a strong foundation in databa
 
 - **BS Information Technology**
   [New Era University]
-  _2021 - Present_
+  _2022 - Present_
 
 ## Certification
 
